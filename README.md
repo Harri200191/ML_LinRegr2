@@ -11,4 +11,4 @@ https://lnkd.in/dN-pxTMn
 
 https://lnkd.in/dwSQGqTx
 
-_*#machinelearning  #kaggle  #data  #realestate  #github  #strategy  #like  #property*_
+_*#machinelearning  #kaggle  #data  #realestate  #github  #strategy  #like  #property*_ #data_science #artifical_intelligence
